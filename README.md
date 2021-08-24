@@ -1,3 +1,3 @@
-Frontend developer from Luleå/Sweden
+## Frontend developer from Luleå/Sweden
 
 ⛄ 💻 🍉 🥏
