@@ -1,3 +1,3 @@
-## Frontend developer up in Luleå
+## Frontend developer | Luleå
 
-⛄ 💻 🍉 🥏
+⛄⭐💻
